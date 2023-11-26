@@ -1,1 +1,1 @@
-# SSL
+TOOL IS FREE NOW 🩷
